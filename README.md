@@ -1,3 +1,0 @@
-# Proiect-DSRVA-KIDNAPPED
-
-Test
